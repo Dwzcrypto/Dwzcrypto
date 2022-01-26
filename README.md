@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Dwzcrypto
-- 👀 I’m interested in ...Design. NFT, Animation,  Gif. Crypto currency 
+- 👀 I’m interested in ... Networking,Design. NFT, Animation,  Gif. Crypto currency , comedy.
 - 🌱 I’m currently learning ...FX, blending,  video editing 
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on , designs, editing, sounds, effects.
 - 📫 How to reach me ...dwzcrypto@mail.com
 
 <!---
